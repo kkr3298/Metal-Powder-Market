@@ -3,7 +3,7 @@
 
 ## Market Overview
 
-The global metal powder industry, valued at **USD 9.0 billion in 2023**, is poised for steady growth over the coming decade. Driven by increasing demand from automotive, aerospace, and additive manufacturing sectors, the market is projected to expand at a **CAGR of 4.6% from 2024 to 2034**. By the end of 2034, the metal powder market is expected to reach a value of approximately **USD 14.9 billion**.
+The global [metal powder industry](https://www.transparencymarketresearch.com/metal-powder-market.html) valued at **USD 9.0 billion in 2023**, is poised for steady growth over the coming decade. Driven by increasing demand from automotive, aerospace, and additive manufacturing sectors, the market is projected to expand at a **CAGR of 4.6% from 2024 to 2034**. By the end of 2034, the metal powder market is expected to reach a value of approximately **USD 14.9 billion**.
 
 Metal powders, essential in manufacturing processes like powder metallurgy and 3D printing, are gaining traction due to their efficiency, material utilization, and ability to produce complex geometries.
 
